@@ -1,1 +1,0 @@
-#Criando um repositorio  para meu curriculo
